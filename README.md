@@ -6,4 +6,6 @@ I believe Psyduck is my soul-pokemon.
 
 🌱 [ Headaches == Productivity ]
 
-🌱 Currently wandering in CS fields looking for headaches 
+🌱 Currently wandering in CS fields looking for headaches [not anymore]
+
+🌱 Headache found ! :D Fluttering..
