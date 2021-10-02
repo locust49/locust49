@@ -8,4 +8,4 @@ I believe Psyduck is my soul-pokemon.
 
 🌱 Currently wandering in CS fields looking for headaches [not anymore]
 
-🌱 Headache found ! :D Fluttering..
+🌱 Headaches found ! At AI/ML/DL areas
